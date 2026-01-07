@@ -3,3 +3,4 @@ my name jame
 มาดิเห็นฉันมั้ย gemini
 แมลงสาบ
 ggghhh
+ม้าลาย
